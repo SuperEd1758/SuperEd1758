@@ -1,0 +1,11 @@
+- Hi, I’m @SuperEd1758
+- I’m interested in TypeScript,
+- But IDK if ill ever learn it
+- I’m currently trying to learn it
+- I’m looking to collaborate on GitHub
+- You Can Reach to me from my YouTube,
+- Michelle Alexander,
+- You can find me in Alex573s Comments
+- Pronouns: He/they
+- ⚡ Fun fact: Alex573 And Billy the rabbit
+- are my online friends!
